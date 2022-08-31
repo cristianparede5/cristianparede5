@@ -1,0 +1,3 @@
+- 👋 Hola me llamo @cristianparede5
+- 🎮🎞Me interesa los juegos,peliculas y series
+- 🎶🎵Me encanta la musica.
